@@ -1,5 +1,5 @@
 # Michael Surya Adi Prasaja
-[email](mailto:suryamichael09@gmail.com) | +6287867190873
+[email](mailto:suryamichael09@gmail.com)
 
 ---
 
